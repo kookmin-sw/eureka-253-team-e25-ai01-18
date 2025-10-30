@@ -171,7 +171,6 @@
 
   
   - 우리가 그리는 미래 그리고 나
-    <img width="1024" height="1536" alt="2050년 스마트 시티 포스터" src="https://github.com/user-attachments/assets/70065c9d-1b7c-405f-84c4-9753ca93db8b" />
 
 - 각오와 소감 나누기 ✔️  
 
