@@ -171,6 +171,9 @@
 
   
   - 우리가 그리는 미래 그리고 나
+[우리가 상상한 미래.pdf](https://github.com/user-attachments/files/23237648/default.pdf)
+
+**[여기서 다운로드하기]** https://drive.google.com/file/d/1ROPNWgnml5TCP9rXqA0yBolu8wQLpY0c/view?usp=sharing
 
 - 각오와 소감 나누기 ✔️  
 
